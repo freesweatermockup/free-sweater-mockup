@@ -1,7 +1,7 @@
 # Free Sweater Mockup by Mockupdaddy.com
 
 ## Overview
-Elevate your branding and design projects with this high-quality [*Free Sweater Mockup**](https://www.mockupdaddy.com/sweater-mockup) from [Mockupdaddy]. This mockup is perfect for showcasing custom apparel designs, brand logos, and creative artwork on a stylish sweater. Crafted with realistic textures and customizable features, it ensures a professional presentation for designers and businesses.
+Elevate your branding and design projects with this high-quality [Free Sweater Mockup](https://www.mockupdaddy.com/sweater-mockup) from [Mockupdaddy]. This mockup is perfect for showcasing custom apparel designs, brand logos, and creative artwork on a stylish sweater. Crafted with realistic textures and customizable features, it ensures a professional presentation for designers and businesses.
 
 ## Features
 - **High-Resolution Quality:** 4000x3000 pixels, ensuring sharp and clear visuals.
